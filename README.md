@@ -1,7 +1,5 @@
 This is kemi
 
-Kemi like to make shit with his shitty ass coding skills!!
+Kemi makes shit for fun!
 
-Kemi is also a well known idiot!
-
-not for anything else tho
+And get tf outta my bio bum ass 
