@@ -1,5 +1,3 @@
-This is kemi
+<h1>Welcome to kemis github</h1>
 
-Kemi makes shit for fun!
-
-And get tf outta my bio bum ass 
+<p>Hi im kemi im currently into designing stuff like discord bots, Server alerts, Api's and more</p>
